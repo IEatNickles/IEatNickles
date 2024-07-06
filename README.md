@@ -1,0 +1,4 @@
+- Hi, I’m @IEatNickles
+- I’m interested in game/software development
+- How to reach me: you can't
+- Fun fact: The closest star to out solar system, Alpha Centauri, is four light-years away, which means interstellar travel will not be possible for a VERY long time.
